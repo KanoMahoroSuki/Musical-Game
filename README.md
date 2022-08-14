@@ -12,4 +12,4 @@ Lyrics: Yunomi
 Prod. : Yunomi  
 
 请勿用于任何商业用途！  
-Please do not use for any commercial purpose!
+Non-Commercial Use!
